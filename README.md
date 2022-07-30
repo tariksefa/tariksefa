@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @tariksefa
+- Main account > [Gosmacx](https://github.com/gosmacx)
